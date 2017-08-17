@@ -13,15 +13,11 @@ Chúng tôi xin chân thành cảm tạ toàn thể quý liệt vị từ khắp
 
 Chúng tôi xin cùng với quý vị thành tâm kính dâng quả phúc thanh cao của pháp thí nầy đến:
 
-> - Các bậc Thầy Tổ, từ ngàn xưa đã bước theo dấu chân của Đức Bổn Sư, bảo tồn Giáo Pháp và trao truyền nguyên vẹn đến chúng ta;
->
-> - Các bậc Tiền Bối đã dày công hộ trì Tam Bảo, giúp cho Giáo Pháp được truyền thừa đến ngày nay;
->
-> - Tất cả chư Phạm Thiên, chư Thiên và chư vị Long Vương cùng khắp mười phương thế giới;
->
-> - Các đấng ông bà, cha mẹ, cữu huyền thất tổ của toàn thế chúng ta, còn tại tiền hay đã quá vãng;
->
-> - Tất cả chúng sanh trong ba giới bốn loài;
+* Các bậc Thầy Tổ, từ ngàn xưa đã bước theo dấu chân của Đức Bổn Sư, bảo tồn Giáo Pháp và trao truyền nguyên vẹn đến chúng ta;
+* Các bậc Tiền Bối đã dày công hộ trì Tam Bảo, giúp cho Giáo Pháp được truyền thừa đến ngày nay;
+* Tất cả chư Phạm Thiên, chư Thiên và chư vị Long Vương cùng khắp mười phương thế giới;
+* Các đấng ông bà, cha mẹ, cữu huyền thất tổ của toàn thế chúng ta, còn tại tiền hay đã quá vãng;
+* Tất cả chúng sanh trong ba giới bốn loài;
 
 **Ngưỡng nguyện tất cả đều an lành, hạnh phúc trong Chánh Pháp.**
 
